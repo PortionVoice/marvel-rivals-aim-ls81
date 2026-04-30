@@ -1,4 +1,4 @@
-
+Get the ultimate marvel rivals aim wh aim assist with marvel rivals aim wh exclusive Aim Assist: hero movement speed & enhanced hero vision. Featuring hero movement speed and
 
 
 
